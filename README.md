@@ -1,0 +1,1 @@
+# TechCorner-Solo
